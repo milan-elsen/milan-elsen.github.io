@@ -5,3 +5,5 @@ Justus Jonas (engl. Jupiter Jones) ist Gründer und erster Detektiv der drei ???
 * geschwollene Art
 * gesetzestreu
 * zielstrebig
+
+> Es gilt durchaus sich hier korrekter Termini zu bedienen!
