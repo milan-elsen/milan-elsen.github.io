@@ -7,3 +7,5 @@ Justus Jonas (engl. Jupiter Jones) ist Gründer und erster Detektiv der drei ???
 * zielstrebig
 
 > Es gilt durchaus sich hier korrekter Termini zu bedienen!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/f/f5/Die_drei_fragezeichen.svg"/>
